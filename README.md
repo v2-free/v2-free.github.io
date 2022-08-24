@@ -1,8 +1,8 @@
-×îÐÂÍøÖ·:
+æœ€æ–°ç½‘å€:
 
 [https://go.runba.cyou](https://go.runba.cyou)
 
-½ÌÓýÍøµÄÍøÓÑÈç¹û´ò²»¿ªÉÏÃæµÄÁ´½Ó£¬ÇëÊ¹ÓÃÏÂÃæµÄÁ´½Ó£º
+æ•™è‚²ç½‘çš„ç½‘å‹å¦‚æžœæ‰“ä¸å¼€ä¸Šé¢çš„é“¾æŽ¥ï¼Œè¯·ä½¿ç”¨ä¸‹é¢çš„é“¾æŽ¥ï¼š
 
 [https://cdn.runba.cyou](https://cdn.runba.cyou)
 
